@@ -4,7 +4,16 @@
 
 ## Time to prepare: 
 
-## Ingredients:
+## Ingredients: 
+Flour
+Granulated sugar
+Baking powder
+Baking Soda
+Salt
+Milk
+Butter
+Vanilla extract
+Large egg
 
 
 ## Equipment needed:
