@@ -2,7 +2,7 @@
 
 ## Servings: 
 
-## Time to prepare: 10 minutes
+## Time to prepare: 10 minutes for experienced breakfast eaters
 
 ## Ingredients:
 
