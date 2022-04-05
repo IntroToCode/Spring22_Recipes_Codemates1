@@ -11,8 +11,9 @@
 
 
 ## Steps for preparation:
-
-
+### step1: slice the lettuce
+### Step3: Add cheese
+### Step: toss the salad
 
 ### Notes:
 
