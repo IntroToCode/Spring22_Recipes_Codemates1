@@ -1,6 +1,7 @@
 # Replace with recipe name
 
 ## Servings: 
+6 spaghetti and meatball servings
 
 ## Time to prepare: 
 
