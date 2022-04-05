@@ -2,7 +2,7 @@
 
 ## Servings: 
 
-## Time to prepare: 
+## Time to prepare: 10 minutes
 
 ## Ingredients:
 
@@ -11,9 +11,12 @@
 
 
 ## Steps for preparation:
-### Step1: Add an egg 
-### Step3: Add oil 
-### Step5: pour it in the skillet 
+Step1: Add an egg 
+Step2: Add Milk 
+Step3: Add oil 
+Step4: Stir Mixing 
+Step5: pour it in the skillet 
+Step6: Flip the pancake 
 
 ### Notes:
 
