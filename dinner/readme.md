@@ -11,6 +11,9 @@
 
 
 ## Steps for preparation:
+Step 2. Drain the pasta 
+Step 4: Add hot meatballs to the spaguetti sauce 
+
 
 
 
