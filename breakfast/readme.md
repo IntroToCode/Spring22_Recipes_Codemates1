@@ -11,12 +11,13 @@
 
 
 ## Steps for preparation:
-Step1: Add an egg 
-Step2: Add Milk 
-Step3: Add oil 
-Step4: Stir Mixing 
-Step5: pour it in the skillet 
-Step6: Flip the pancake 
+Step 1: Pour mixing in a large bowl 
+Step 2: Add an egg 
+Step 3: Add Milk 
+Step 4: Add oil 
+Step 5: Stir Mixing 
+Step 6: pour it in the skillet 
+Step 7: Flip the pancake 
 
 ### Notes:
 
