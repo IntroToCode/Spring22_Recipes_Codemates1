@@ -11,6 +11,8 @@
 
 
 ## Steps for preparation:
+Step 2: Add croutons 
+Step 4: Add Caeser dressing 
 
 
 
