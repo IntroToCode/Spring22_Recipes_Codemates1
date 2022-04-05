@@ -11,7 +11,9 @@
 
 
 ## Steps for preparation:
-
+Step 2: Add Milk 
+Step 4: Stir Mixing 
+Step 6: Flip the pancake 
 
 
 ### Notes:
