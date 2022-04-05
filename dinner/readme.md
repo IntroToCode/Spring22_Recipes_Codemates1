@@ -3,7 +3,7 @@
 ## Servings: 
 6 spaghetti and meatball servings
 
-## Time to prepare: 50 minutes
+## Time to prepare: 50 minutes (on a good day)
 
 ## Ingredients:
 
