@@ -21,7 +21,16 @@ Large jar of Marinara sauce
 1 pound spaghetti 
 
 ## Equipment needed:
+*Pasta*
+- Large pot
+- Tongs
+- Collander
 
+*Meatballs*
+- Cutting board
+- Sharp knift
+- Mixing bowl
+- Baking sheet
 
 ## Steps for preparation:
 
