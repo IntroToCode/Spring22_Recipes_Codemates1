@@ -3,7 +3,7 @@
 ## Servings: 
 18 - 3 per person, 6 people
 
-## Time to prepare: 10 minutes
+## Time to prepare: 10 minutes for experienced breakfast eaters
 
 ## Ingredients:
 
