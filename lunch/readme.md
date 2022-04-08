@@ -1,6 +1,7 @@
 # Replace with recipe name
 
 ## Servings: 
+6 servings (2 cups each)
 
 ## Time to prepare: 30 minutes (if lucky)
 
