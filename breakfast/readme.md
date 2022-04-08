@@ -9,7 +9,10 @@
 
 
 ## Equipment needed:
-
+- Bowl
+- Whisk
+- Cast iron skillet
+- Spatula
 
 ## Steps for preparation:
 
