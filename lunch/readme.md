@@ -9,7 +9,18 @@
 
 
 ## Equipment needed:
+*Sauce*
+- Sauce pan
+- Wooden spoon
 
+*Meatballs*
+- Mixing bowl
+- Frying pan
+
+*Pasta*
+- Large pot
+- Tongs
+- Collander
 
 ## Steps for preparation:
 
