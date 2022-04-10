@@ -1,4 +1,4 @@
-# Our Version of a Ceasers Salad 
+# Our Version of a Ceaser Salad 
 
 ## Servings: 
 6 servings (2 cups each)
