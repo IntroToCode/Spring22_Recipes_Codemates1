@@ -40,7 +40,7 @@ Step 3: Add cheese
 
 Step 4: Add Caeser dressing
 
-Step 5: Toss the salad wit wodden spoon
+Step 5: Toss the salad with wodden spoon
 
 ### Notes:
 
