@@ -1,4 +1,4 @@
-# Replace with recipe name
+# Pancake Recipe 
 
 ## Servings: 
 18 - 3 per person, 6 people
