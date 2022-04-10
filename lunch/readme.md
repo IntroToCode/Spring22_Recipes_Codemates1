@@ -32,9 +32,15 @@ Kosher salt and freshly ground black pepper
 - Collander
 
 ## Steps for preparation:
-### step1: slice the lettuce
-### Step3: Add cheese
-### Step5: toss the salad
+Step 1: Slice the lettuce
+
+Step 2: Add croutons
+
+Step 3: Add cheese
+
+Step 4: Add Caeser dressing
+
+Step 5: Toss the salad wit wodden spoon
 
 ### Notes:
 
