@@ -32,8 +32,9 @@ Kosher salt and freshly ground black pepper
 - Collander
 
 ## Steps for preparation:
-
-
+### step1: slice the lettuce
+### Step3: Add cheese
+### Step5: toss the salad
 
 ### Notes:
 
