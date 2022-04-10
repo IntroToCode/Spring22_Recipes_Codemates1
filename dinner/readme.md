@@ -1,4 +1,4 @@
-# Replace with recipe name
+# Grad Student Spaghetti & Meatball Recipe 
 
 ## Servings: 
 6 spaghetti and meatball servings
