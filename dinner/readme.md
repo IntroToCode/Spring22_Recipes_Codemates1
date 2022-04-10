@@ -33,7 +33,7 @@ Large jar of Marinara sauce
 - Baking sheet
 
 ## Steps for preparation:
- Step1 1: Boil the pasta
+ Step 1: Boil the pasta
 
  Step 2: Drain the pasta 
 
