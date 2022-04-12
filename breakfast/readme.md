@@ -40,7 +40,7 @@ Step 6: pour it in the skillet
 Step 7: Flip the pancake 
 
 ### Notes:
-
+If you are Vegan, please don't use egggggs. 
 
 
 ### Codemates #
