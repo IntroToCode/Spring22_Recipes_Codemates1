@@ -43,7 +43,7 @@ Step 4: Add Caeser dressing
 Step 5: Toss the salad with wodden spoon
 
 ### Notes:
-
+If on a diet, please reduce the cheese to reduce the calories
 
 
 ### Codemates #
